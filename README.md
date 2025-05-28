@@ -1,4 +1,4 @@
-**Going to Start at first of june, estimated deadline will be 10th of july**
+**Going to Start at 5th of june, estimated deadline will be 15th of july**
 
 **Devs Network**
 
